@@ -34,7 +34,6 @@ Faceit: https://www.faceit.com/tr/players/wh1te-b
 Github: https://github.com/Wh1teSakenN
 Spotify: https://open.spotify.com/user/42bla3riqdt4i92br49545ucc
 Discord Sunucum: https://discord.gg/kKgYffgq
-Twitter: https://twitter.com/Tezgahtarcocuk
 Facebook: https://www.facebook.com/beyaz.ibrahim.9/
 Instagram: https://www.instagram.com/ibrahim_odbk/?hl=tr
 
