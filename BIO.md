@@ -1,5 +1,5 @@
 Öncelikle Merhaba ben ibrahim 
-17'ye merdiven dayadım
+19'a merdiven dayadım
 Takım tutmuyorum
 Oyun oynamayı severim
 E-Spora meraklıyımdır 
